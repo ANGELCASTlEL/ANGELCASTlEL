@@ -16,4 +16,5 @@ c+h on ponytown is ALWAYS a yes for me ><
 
 
 I made my graphics and stuff so please do NOT take them. If you do just please atleast credit me or something . . I know not everyone will listen so </3
+and also of course credits to the artists that I got the Destiel thing from and the Castiel art....I forgot who but if u find out please let me know!! ^_^
 
