@@ -8,8 +8,8 @@
 
 ⠀⠀⠀⠀⠀BIG Castiel & Gabriel enthusiast 
 ⠀
-⠀I love Sabriel & Destiel don't even joke lad.
-⠀⠀⠀TRANSMASC, POLY & PANROMANTIC
+⠀⠀⠀⠀I love Sabriel & Destiel don't even joke lad.
+⠀⠀⠀⠀TRANSMASC, POLY & PANROMANTIC
 
 c+h on ponytown is ALWAYS a yes for me ><
 
