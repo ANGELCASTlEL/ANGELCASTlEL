@@ -4,7 +4,7 @@
 
 ![Untitled153-20260602065339.png](https://i.postimg.cc/7L307Zr4/Untitled153-20260602065339.png)⠀⠀⠀⠀⠀ ＬＥＯＮ ᵒʳ 𝒞𝒜𝒮𝒯𝐼𝐸𝐿 / 𝒱𝐼𝒦𝒯𝒪𝑅
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀PROSHIP DNI , don't bother following me if you are in my DNI ⠀⠀⠀⠀⠀⠀⠀⠀thank you!
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀PROSHIP DNI , don't bother       following me if you are in my DNI ⠀⠀⠀⠀⠀⠀⠀⠀    thank you!
 
 ⠀⠀⠀⠀⠀BIG Castiel & Gabriel enthusiast 
 ⠀⠀I love Sabriel & Destiel don't even joke lad.
