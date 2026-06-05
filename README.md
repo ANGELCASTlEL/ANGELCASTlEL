@@ -1,5 +1,9 @@
 ## ⠀⠀⠀⠀⠀⠀ ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
-![Untitled154-20260602065320.png](https://i.postimg.cc/BQjFpgf2/Untitled154-20260602065320.png)
+<p align="center">
+<img src="![](https://komarev.com/ghpvc/?username=ANGELCASTlEL&color=blue)&style=plastic&label=▬ι𓆃&abbreviated=true">
+</a>
+
+ ![Untitled154-20260602065320.png](https://i.postimg.cc/BQjFpgf2/Untitled154-20260602065320.png)
 
 “  Hҽ ԋυɾƚ ɱҽ αɳԃ ιƚ ϝҽʅƚ ʅιƙҽ α Dɾҽαɱ  “
 
